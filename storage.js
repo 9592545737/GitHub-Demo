@@ -1,2 +1,2 @@
 Hi there!
-  I am Gurminder Singh.
+  I am Gurminder
